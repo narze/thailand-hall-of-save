@@ -9,3 +9,4 @@ Thailand #save archives
 ## Contribution
 
 - Open a new issue / pull request with a #save_x hashtag, preferrably with an accurate date of when it was trending on Twitter.
+- Fake, meme, not-trending, or unrelevant #save will not be added.
