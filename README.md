@@ -7,7 +7,8 @@ Thailand #save archives
 - [#saveวันเฉลิม](https://twitter.com/search?q=%23saveวันเฉลิม) - 04/06/2020
 - [#saveทนายอานนท์](https://twitter.com/search?q=%23saveทนายอานนท์), [#saveไมค์](https://twitter.com/search?q=%23saveไมค์) - 07/08/2020
 - [#SaveParit](https://twitter.com/search?q=%23SaveParit), [#SavePanusaya](https://twitter.com/search?q=%23SavePanusaya) - 12/08/2020
-- [#SaveParit](https://twitter.com/search?q=%23SaveParit) (again) - 14/08/2020
+- [#SaveParit](https://twitter.com/search?q=%23SaveParit) (2) - 14/08/2020
+- [#saveทนายอานนท์](https://twitter.com/search?q=%23saveทนายอานนท์) (2) - 03/09/2020
 
 ## Contribution
 
