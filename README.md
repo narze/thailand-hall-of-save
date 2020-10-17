@@ -12,6 +12,7 @@ Thailand #save archives
 - [#saveรัศมีแข](https://twitter.com/search?q=%23saveรัศมีแข) - 05/09/2020
 - [#saveตัวเองก่อน](https://twitter.com/search?q=%23saveตัวเองก่อน) - 20/09/2020
 - [#saveบุญเกื้อหนุน](https://twitter.com/search?q=%23saveบุญเกื้อหนุน), [#saveเอกชัย](https://twitter.com/search?q=%23saveเอกชัย) - 15/10/2020
+- [#saveสมยศ](https://twitter.com/hashtag/saveสมยศ)
 
 ## Contribution
 
