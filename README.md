@@ -20,6 +20,7 @@ Thailand #save archives
   - [#saveสมยศ](https://twitter.com/hashtag/saveสมยศ)
   - [#saveหมอทศพร](https://twitter.com/hashtag/saveหมอทศพร)
   - [#saveแอม](https://twitter.com/hashtag/saveแอม)
+- Hongkong's [#save12hkyouths](https://twitter.com/hashtag/save12hkyouths)
 
 ## Contribution
 
