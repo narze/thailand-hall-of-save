@@ -21,6 +21,7 @@ Thailand #save archives
   - [#saveหมอทศพร](https://twitter.com/hashtag/saveหมอทศพร)
   - [#saveแอม](https://twitter.com/hashtag/saveแอม)
 - Hongkong's [#save12hkyouths](https://twitter.com/hashtag/save12hkyouths) - 18/10/2020
+- [#saveสื่อเสรี](https://twitter.com/hashtag/saveสื่อเสรี) - 19/10/2020
 
 ## Contribution
 
