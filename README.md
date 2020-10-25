@@ -24,6 +24,7 @@ Thailand #save archives
 - [#saveสื่อเสรี](https://twitter.com/hashtag/saveสื่อเสรี) - 19/10/2020
 - [#saveมายด์](https://twitter.com/hashtag/saveมายด์), [#SaveUsFromTheKing](https://twitter.com/hashtag/SaveUsFromTheKing) - 21/10/2020
 - [#saveArtie](https://twitter.com/hashtag/saveArtie) - 23/10/2020
+- [#saveรุ้ง](https://twitter.com/hashtag/saveรุ้ง) - 25/10/2020
 
 ## Contribution
 
