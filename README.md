@@ -27,6 +27,7 @@ Thailand #save archives
 - [#saveรุ้ง](https://twitter.com/hashtag/saveรุ้ง) - 25/10/2020
 - [#SavePornhub](https://twitter.com/hashtag/SavePornhub) - 03/11/2020
 - [#saveนิวมธ](https://twitter.com/hashtag/saveนิวมธ) - 13/01/2021
+- [#SaveMyanmar](https://twitter.com/hashtag/SaveMyanmar) - 01/02/2021
 
 ## Contribution
 
