@@ -29,6 +29,7 @@ Thailand #save archives
 - [#saveนิวมธ](https://twitter.com/hashtag/saveนิวมธ) - 13/01/2021
 - [#SaveMyanmar](https://twitter.com/hashtag/SaveMyanmar) - 01/02/2021
 - [#SaveVicha](https://twitter.com/hashtag/SaveVicha) - 05/02/2021
+- [#saveบางกลอย](https://twitter.com/hashtag/saveบางกลอย) - 22/02/2021
 
 ## Contribution
 
