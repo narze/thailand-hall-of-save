@@ -33,6 +33,7 @@ Thailand #save archives
 - [#saveแอมมี่](https://twitter.com/hashtag/saveแอมมี่) - 03/03/2021
 - [#saveทิวากร](https://twitter.com/hashtag/saveทิวากร) - 04/03/2021
 - [#saveหมอดล](https://twitter.com/hashtag/saveหมอดล) - 08/04/2021
+- [#saveรองเท้าแตะ](https://twitter.com/hashtag/saveรองเท้าแตะ) - 12/04/2021
 
 ## Contribution
 
